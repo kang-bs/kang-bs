@@ -8,5 +8,4 @@ sW프로세스를 좋아합니다.
 
 ## Links
 - E-mail - rkdqhtjd77@naver.com
-- Homepage - https://se.yu.ac.kr
-- 
+
